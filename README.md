@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Phk126
-- 👀 I’m interested in Windows & iPhone
+- 👀 I’m interested in Games
 - 🌱 I’m currently try to learning code and understand how developer work.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on NVIDIA Digital Human Technologies Bring AI Game Characters To Life
 - 📫 How to reach me Phakhin.126@Outlook.com,Phkssttmvt@Gmail.com,Phakhins@iCloud.com
 - 😄 Pronouns: HE
 - ⚡ Fun fact: The Fact is not fun. 🤯
