@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @Phk126
-- 👀 I’m interested in Games
-- 🌱 I’m currently try to learning code and understand how developer work.
-- 💞️ I’m looking to collaborate on NVIDIA Digital Human Technologies Bring AI Game Characters To Life
-- 📫 How to reach me Phakhin.126@Outlook.com,Phkssttmvt@Gmail.com,Phakhins@iCloud.com
-- 😄 Pronouns: HE
-- ⚡ Fun fact: The Fact is not fun. 🤯
+- 👀 I’m interested in my iPhone 15 Plus.
+- 🌱 I’m currently waiting for NPU.
+- 💞️ I’m looking to collaborate...
+- 📫 How to reach me Phkssttmvt@Gmail.com,Phakhins@iCloud.com
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
 
 <!---
 Phk126/Phk126 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
