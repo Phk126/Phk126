@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Phk126
-- 👀 I’m interested... .
+- 👀 I’m interested...
 - 🌱 I’m currently waiting.
 - 💞️ I’m looking to reuse memory and generate new experience with material. 
 - 📫 How to reach me Phakhin.126@Outlook.com, Phakhin.126@iCloud.com,Phkssttmvt@Gmail.com,Phakhins@iCloud.com 
