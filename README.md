@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Phk126
-- 👀 I’m interested in games.
-- 🌱 I’m currently waiting...
-- 💞️ I’m looking to collaborate...
+- 👀 I’m interested... .
+- 🌱 I’m currently waiting.
+- 💞️ I’m looking to reuse memory and generate new experience with material. 
 - 📫 How to reach me Phakhin.126@Outlook.com, Phakhin.126@iCloud.com,Phkssttmvt@Gmail.com,Phakhins@iCloud.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
-- 🧠 I try to remember everything.
-- 📱I'm seeking and finding purpose to living day by day with methods.
+- 🧠 I try to remember all of my lesson. When I was a human.
+- 📱I'm try to sleeping with methods.
