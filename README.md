@@ -6,7 +6,7 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 - 🧠 I try very hard to remember everything I read or listen. But I can't remember anything.😭🙏
-<!---
+- 📱💻 I'm a beginner in web development, seeking to learn the purpose of the console, or an experienced developer and discover methods that I didn't know existed.
 Phk126/Phk126 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
